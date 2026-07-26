@@ -14,6 +14,8 @@ His Youtube : https://www.youtube.com/channel/UCTAj2QuMMZSMnFNkX3uxDow
 
 <img width="1920" height="1080" alt="screenshot011" src="https://github.com/user-attachments/assets/a58abad1-c3a7-4237-8eee-2a8eefc261c4" />
 
+[⌈ Sakura ⌋ 8k 桜](https://drive.google.com/file/d/117fjD_K4QqeurdY92Hqd5fLMogjVbd7R/view?usp=sharing)
+
 
 # 2.[⌈ Sakura ⌋ 2026 +HDDT [Tournament Legacy] 桜](https://drive.google.com/drive/folders/1Mpx6HClOtJptNQiyrFSTTTDG8Fxjo230?usp=sharing)
 
