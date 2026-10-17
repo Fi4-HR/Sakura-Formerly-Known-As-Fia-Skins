@@ -10,7 +10,7 @@ His Youtube : https://www.youtube.com/channel/UCTAj2QuMMZSMnFNkX3uxDow
 
 **Skins were added in order from the newest to the oldest**
 
-# 1.[⌈ Sakura ⌋ 2026-09-19 +HDDT 桜](https://drive.google.com/file/d/1EL7B045hHPwxv-YLRFOxnINZ56K4PyMO/view?usp=sharing)
+# 1.[⌈ Sakura ⌋ 2026-09-19 +HDDT 桜](https://drive.google.com/file/d/1LlYRY6OGJ-EB2yIvjxBKZgLokLGJc-jJ/view?usp=sharing)
 
 <img width="1920" height="1080" alt="new DT" src="https://github.com/user-attachments/assets/e57cb3fe-97e0-4f22-80a0-bbb4bb4f49db" />
 
